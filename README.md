@@ -1,5 +1,7 @@
 ─── ⋆⋅☆⋅⋆ ──
-Hi, I’m @natazsja
+- Hi, I’m @natazsja
+
+
 Niche: website development and UI & UX
 
 
