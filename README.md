@@ -2,7 +2,7 @@
 Hi, I’m Nata
 
 
-Niche: UI & UX
+Niche: UI & UX Design, Website Development
 
 
 reach me at natazsja@gmail.com for project/collaboration!
